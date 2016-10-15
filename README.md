@@ -21,8 +21,8 @@ A heart so true
 Our courage will pull us through
 
 You teach me and I'll teach you
-Ruby, gotta catch 'em all
-Gotta catch 'em all
+Ruby, gotta learn it all
+Gotta learn it all
 Yeah
 
 Every challenge along the way
